@@ -1,5 +1,5 @@
 ## пеніс.
-
+![Alt text](<img width="650" height="490" alt="изображение" src="https://github.com/user-attachments/assets/690b944f-cddb-4df5-b48a-3d16697cfc98" />)
 <!--
 **sralnik99/sralnik99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
