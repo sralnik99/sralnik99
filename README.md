@@ -1,7 +1,4 @@
 ## пеніс.
-<img src="https://i.ibb.co/0pqzH7zN/Logo128x152.png" width="400">
-<img src="https://i.ibb.co/S4GSPGFb/archlinux-icon-130988-removebg-preview.png", alt="Right aligned" style="float: right; margin: 0 0 15px 15px;", width="400">
-
 <!--
 **sralnik99/sralnik99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
