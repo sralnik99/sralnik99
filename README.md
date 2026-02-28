@@ -1,7 +1,7 @@
 ## пеніс.
 я люблю фембоїв і пеніси ДУЖЕ ЛЮБЛЮ ПЕНІСИ.
 
-main hater web development
+main hater of web development
 <!--
 **sralnik99/sralnik99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
