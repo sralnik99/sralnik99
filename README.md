@@ -1,5 +1,7 @@
 ## пеніс.
 я люблю фембоїв і пеніси ДУЖЕ ЛЮБЛЮ ПЕНІСИ.
+
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/X3U023JVQF)
 <!--
 **sralnik99/sralnik99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
