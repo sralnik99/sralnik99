@@ -2,6 +2,9 @@
 я люблю фембоїв і пеніси ДУЖЕ ЛЮБЛЮ ПЕНІСИ.
 
 too lazy to do smth real cool
+if you want to help me, dm me on discord:
+
+sralnik.99
 
 <!--
 **sralnik99/sralnik99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
